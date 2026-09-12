@@ -306,10 +306,10 @@ This laboratory is intended strictly for education purposes only.
 
 # 👤 Author
 
-**Waqas Karim**\
+**SHREEYA ZUNJARRAO**\
 Cybersecurity Professional B082
 
-LinkedIn: [https://www.linkedin.com/in/waqaskarim/](https://www.linkedin.com/in/waqaskarim/)
+LinkedIn:https://lnkd.in/p/dpvs7hkb
 
 ---
 
